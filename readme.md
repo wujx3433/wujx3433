@@ -1,6 +1,6 @@
 ### Zn向各位来访者问好
 
-### A greeting to every visitor from Zn
+### A greeting to every visitor
 
 可以叫我Zn或锌，但是请不要叫我zn。
 
