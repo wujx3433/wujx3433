@@ -18,7 +18,7 @@ You can call me Zn or 锌 (Pinyin: xīn, means zinc) .
 
 - 不擅长 / not good at Français(FR) Русский(RU)
 
-- 👩‍🎓 大学因病辍学 / Drop out due to disease
+- ⚕️ 重度精神病患者 /Severe mental illness
 
 - ⭐ 对音乐、文学和医学感兴趣 / Interested in music, literature and medicine
 
