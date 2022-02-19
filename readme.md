@@ -12,8 +12,6 @@ You can call me Zn or 锌 (Pinyin: xīn, means zinc) .
 
 - 请以女性人称称呼我 / Pronouns: She/her
 
-- [MtF-Wiki](https://github.com/mtf-wiki)的内容贡献者 / Content contributor
-
 - 💬 中文(ZH) English(EN) 日本語(JA)
 
 - 不擅长 / not good at Français(FR) Русский(RU)
