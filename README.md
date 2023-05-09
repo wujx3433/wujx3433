@@ -6,5 +6,5 @@ I have a little hobbies, listening to music, writing songs, reading books, watch
 
 Using Mac with Apple Silicon.
 
-![Zn刻板印象](https://github.com/wujx3433/wujx3433/assets/32533580/c0491d8d-230f-4daf-8271-575e57d355f0)
+<img src="https://github.com/wujx3433/wujx3433/assets/32533580/c0491d8d-230f-4daf-8271-575e57d355f0" width="400" />
 
