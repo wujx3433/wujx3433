@@ -4,7 +4,7 @@
 
 I have a little hobbies, listening to music, writing songs, reading books, watching movies, watching anime, doing subtitles, and playing rhythm games.
 
-I falled into novel-writing recently.
+I falled in novel-writing recently.
 
 <img src="Source/Zn刻板印象.png" width="400" />
 
