@@ -1,10 +1,15 @@
-有一点小爱好，听歌，写歌，读书，看电影，看动漫，做字幕，打音游。
+你好世界，我是Zn。
 
-最近喜欢上了写作。
+- macOS、Linux、Windows 三重使用者。
+- （前）VOCALOID Producer，简称P主。
+- （前）业余无线电科普作者。
+- （前）MCN机构从业人。
+- （伪）跨性别科普作者。
+- 小说写作及连载中。
 
-I have a little hobbies, listening to music, writing songs, reading books, watching movies, watching anime, doing subtitles, and playing rhythm games.
+[有一个连载自己想法的网站。](https://wujx3433.github.io)
 
-I falled in novel-writing recently.
+更多爱好及特点无法一一列明，总之请看下图：
 
 <img src="Source/Zn刻板印象.png" width="400" />
 
